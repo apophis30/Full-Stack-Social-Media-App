@@ -97,7 +97,7 @@ We welcome contributions! Please follow these guidelines:
 
 For any inquiries or support, please contact:
 
-- **Email**: ashri1205@gmail.com
+- **Email**: kumaramanpur30nov@gmail.com
 
 ## FAQ
 
